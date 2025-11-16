@@ -1,3 +1,6 @@
+<img width="1024" height="1536" alt="image" src="https://github.com/user-attachments/assets/9a45a3a9-e1b9-441b-83ee-bfc0d895ed65" />
+
+
 📘 EBOOK COMPLETO — Inteligência Artificial no Futuro das Nações
 ✍️ Autor: Felipe Ferreira
 
